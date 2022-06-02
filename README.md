@@ -26,7 +26,7 @@ https://user-images.githubusercontent.com/94983278/162611381-a36a7234-00bd-424c-
 
 ## Contributors
 
-Edgar Pocaterra - mholts1020@gmail.com
+Maxwell Snyder - mholts1020@gmail.com
 
 ---
 
